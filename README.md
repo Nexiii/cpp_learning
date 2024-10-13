@@ -1,1 +1,1 @@
-Just my learning projects, soooo its shit code xD
+Just my learning progress, soooo its shit code xD
